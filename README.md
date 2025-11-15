@@ -1,4 +1,4 @@
-# ABOUT MEMEME!!!
+# ABOUT MEMEME!!! tiktok.com/@lockhart3003
 hihi! The names Emmia!!! you may call me emi, emma or mia, whatever you'd like!:3
 im 13 yrs old, isn't that cool!?
 my birthday is in May 3!
