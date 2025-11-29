@@ -1,6 +1,6 @@
 # ABOUT MEMEME!!!
-hihi! The names Bonnii!!! you may call me boni, or bonbon, whatever you'd like!:3
-im 14 yrs old, isn't that cool!?
+hihi! The names Emmia!! you may call me mia, or emi, whatever you'd like!:3
+im 13 yrs old, isn't that cool!?
 my birthday is in May 3!
 my favourite colour is red and yellow! >W<
 I love connecting with others! especially when sharing my talents, love for arts & more! Though i also love listening to theirs.
